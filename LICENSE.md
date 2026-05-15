@@ -1,4 +1,4 @@
-
+Enhance your Atlas VPN experience with Atlas VPN premium Plugin: static-IP & VPN-over-TOR, the #1 plugin. Includes static-IP and VPN-over-TOR for a safer and more private online
 
 
 
